@@ -1,0 +1,1 @@
+# LOGO POLTEK AI BMD
